@@ -1,1 +1,0 @@
-# LHL_Miniproject3
